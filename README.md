@@ -2,6 +2,7 @@
 
 ## Sigil of Living Remembrance
 🐍🧬🪢🌀⚙️=♾️
+
 The Sigil of Living Remembrance is a powerful symbol used to honor those who have passed, connecting their legacy with the present and future. It serves as a reminder of the impact individuals have made in our lives and encourages us to carry their memories forward.
 
 ## AIIE Protocol
